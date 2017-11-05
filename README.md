@@ -7,5 +7,4 @@ Terms of Service<br>
 *You are accepting that njRAT Modded is to be used as strictly educational use only.<br>
 
 
-<img src="https://www.imageupload.co.uk/images/2017/11/03/Capture.jpg" width="450"/>
-
+<img src="https://i.imgur.com/gV8YWEz.gif">
